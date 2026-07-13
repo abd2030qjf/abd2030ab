@@ -11,7 +11,9 @@ https://www.mediafire.com/file/b2v3jyjas9bbws6/tors.zip/file
 https://www.mediafire.com/file/1bd58acelmktaxn/wLi_Optima2015.zip/file
 
 كابرس
-https://www.mediafire.com/file/zvynjgs661m9il7/DXTR_Caprice_2012.zip/file
+
+https://www.mediafire.com/file/binsn2yh65115q3/DXTR_Caprice_2012.zip/file
+
 لاند
 
 https://www.mediafire.com/file/es2hj79pnt2z443/cruiserj100.zip/file
