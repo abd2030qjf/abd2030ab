@@ -49,3 +49,12 @@ https://www.mediafire.com/file/w3zeooiyd8hrngu/carrr1212.zip/file
 كاندزاء
 https://www.mediafire.com/file/rbf5ra1d8i3bwkk/carrr1313.zip/file
 
+
+كامري 2025 
+
+https://www.mediafire.com/file/ei8k6o7a5riwyqk/car1312.zip/file
+
+
+سيرا 2025
+
+https://www.mediafire.com/file/c8imsgwsrrdqws1/car132.zip/file
