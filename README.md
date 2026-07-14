@@ -95,3 +95,33 @@ https://modsfire.com/8Llq7dNg7em7Nad
 باترول ٨٥
 
 https://modsfire.com/fmKo51l7PU1YMP8
+
+
+
+تنعيم الكفرات
+
+https://www.beamng.com/resources/variable-grip-tires-on-lua.21681/
+
+
+تحسبن رسومات
+
+https://www.beamng.com/resources/teons-graphics-tweaks-ttweaks.33082/
+
+
+
+ماب غروفي
+
+https://www.mediafire.com/file/pbu5rwcbgqnxiq1/Drive_20K_By_iiMoov.zip/file
+
+
+
+ماب باب 
+
+https://modsfire.com/7ApJyoebBHKqRYo
+
+
+[لكزس 
+
+
+](https://modsfire.com/MP5ra8F1S737QdI
+
