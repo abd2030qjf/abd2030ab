@@ -179,6 +179,4 @@ https://modsfire.com/86Ky9XMMnQ1slfP
 
 
 
-https://discord.com/channels/1474104321497890939/1479154958027853864
-كورلا
-https://www.mediafire.com/file/7419exxh7peomux/m7corolla.zip/file
+
