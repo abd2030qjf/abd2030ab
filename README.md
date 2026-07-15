@@ -132,9 +132,53 @@ https://www.mediafire.com/file/4x27u6dwb0xueaz/car132.zip/file
 
 
 
+لوحات
+
+https://modsfire.com/U8ZM5Eb3iGyV7tP
+
+
+
 فورد
 https://www.mediafire.com/file/ig2vabg1mpcm5vz/FordCrownVictoria.zip/file
 
 
+
+فيقراء
+
+https://modsfire.com/3a49PDrX78cOxAD
+
+
+
+
+كياء 8
+https://modsfire.com/0dY1k40o6jxgvAt
+
+
+
+سوناتا 2009
+
+https://modsfire.com/b8Amh1BUa2uMGqM
+
+
+
+تورس2023
+
+https://modsfire.com/y5d4kICBRMoVBK8
+
+
+
+فكتوريا
+
+https://modsfire.com/yG9HyL05szhErKw
+
+
+
+فور اف 150
+
+https://modsfire.com/86Ky9XMMnQ1slfP
+
+
+
+https://discord.com/channels/1474104321497890939/1479154958027853864
 كورلا
 https://www.mediafire.com/file/7419exxh7peomux/m7corolla.zip/file
