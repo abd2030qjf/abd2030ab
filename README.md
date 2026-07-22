@@ -392,9 +392,38 @@ https://modsfire.com/Pe1CBfLCU8jEGQp
 
 https://www.modland.net/download/219676
 
+
+
+كابرس 1998
+
+https://www.modland.net/beamng.drive-mods/cars/chevrolet-caprice-classic.html
+
+
+
+
+سياره كهربا
+
+https://www.modland.net/beamng.drive-mods/cars/rivian-r1tr1s-pack.html
+
+
+
 كدلك
 https://www.modland.net/download/547177
 
 
+
+تجميعه سيارات الامانيه
+
+https://www.modland.net/beamng.drive-mods/cars/german-cars-pack.html
+
+
+
+باترول 80
+
+https://www.mediafire.com/file/ltzanuvjclozawf/باترول+80.zip/file
+
+جمس
+
+https://www.modland.net/download/547177
 
 
