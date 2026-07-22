@@ -428,3 +428,64 @@ https://www.mediafire.com/file/ltzanuvjclozawf/باترول+80.zip/file
 https://www.modland.net/download/547177
 
 
+بقاني
+
+https://www.mediafire.com/file/m56gyzosyyy44f6/cc850v1.zip/file
+
+
+
+
+بريوس
+
+https://www.modland.net/beamng.drive-mods/cars/mod-toyota-prius-v-elite.html
+
+
+
+
+جاكور xj200
+
+https://www.modland.net/beamng.drive-mods/jag-xj220.html
+
+
+
+
+رام2500
+https://www.modland.net/beamng.drive-mods/dodge-ram-4th-gen.html
+
+
+
+
+فولكس باسات 
+https://www.modland.net/beamng.drive-mods/cars/volkswagen-passat-pack-free-beamng.html
+
+
+
+
+سيراء
+
+https://www.modland.net/beamng.drive-mods/cars/gmc-sierra-2015-2019.html
+
+
+
+جمس طاش مطاش
+
+https://www.modland.net/beamng.drive-mods/cars/gmc-suburban-1984.html
+
+
+
+
+ماب
+https://www.modland.net/beamng.drive-mods/maps/m7town2-ksa-drift.html
+
+
+https://www.modland.net/beamng.drive-mods/maps/old-shifa-warehouses-street-ksa.html
+ماب2
+
+
+
+
+
+
+جاكور
+
+https://www.modland.net/beamng.drive-mods/cars/jaguar-xf-6.html
