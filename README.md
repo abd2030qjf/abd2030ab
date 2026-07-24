@@ -534,9 +534,51 @@ https://modsfire.com/46Lh5Cj60JHLOL9
 دوج خويلدhttps://modsfire.com/fYv1m5qKQXB60xm
 
 
+ربع خويلد 2023 https://www.dropbox.com/scl/fi/62o83rfle8u2r1wnu6tz0/Land_Cruiser_j70_2023_KHwylD.zip?rlkey=47vonf2k90mdh0hr6ec4eb9lv&st=t3rx0hd1&dl=1
+
+مكسيما خويلد 1999 https://www.dropbox.com/scl/fi/1ainm03f2uku7vjxhwdqp/Maxima_1999_KHwylD.zip?rlkey=qqevdrh4p3byi3wxbvarzwzur&st=607mukr4&dl=1
+
+
+صني خويلد 2024 https://www.dropbox.com/scl/fi/e90zb1ke9m62sgr9rod34/Sunny_2024_KHwylD.zip?rlkey=2vktjxh1s5thrvkifwxqxl23b&st=untcmlfx&dl=1
+
+اي10 خويلد https://www.dropbox.com/scl/fi/2v4asorfrwozy1pqkg74y/i10_2015_KHwylD.zip?rlkey=ibm65b095q487c9ee097y2dzr&st=cf60w0x5&dl=1
+
+يارس خويلد 2015 https://www.dropbox.com/scl/fi/14ywnlaxdgew2bkn1q1pi/Yaris_2015_KHwylD.zip?rlkey=i9oaofj79anou9o13uascdf5z&st=pg8w9p3j&dl=1
+
+ربع خويلد 2024 https://www.dropbox.com/scl/fi/39regxwtb4pswnfyhjyad/RB3_2024_KHwylD.zip?rlkey=k61qun8h0vdy5sd89i897zxik&st=fwdcusjm&dl=1
+
+التيما خويلد 2009 https://www.dropbox.com/scl/fi/zni6z2ib77wcyexa7pvby/Altima_2009_KHwylD.zip?rlkey=o45nek8ucojlxwg692fim96qr&st=qkf8lymq&dl=1
+
+سوناتا خويلد 2017 https://www.dropbox.com/scl/fi/88hfy954ux8shh0f6k4oq/Sonata_2017_KHWYLD.zip?rlkey=8ntga8bvmuxs0mab17mstv14y&st=pxul0dn5&dl=1
+
+كامري خويلد 2011 https://www.dropbox.com/scl/fi/ie55iuc5dajaxzwc9pr1u/Camry_2011_KHwylD.zip?rlkey=tjhyornagwreqyglpjqybc3n2&st=u80usjy2&dl=1
+
+هايلوكس خويلد 2011 https://www.dropbox.com/scl/fi/12jvs85pq3mx58mxhdwqr/Hilux_2011_KHwylD-2.zip?rlkey=n1oyx9498iry5sffe40lauj1l&st=qi1alrmb&dl=1
 
 
 
+يارس https://www.dropbox.com/scl/fi/kuri7fit23is18cpqnc0i/vehicles.zip?rlkey=3hlxpe7ok6z4619nh60yv3s99&st=19lftd9g&dl=1
+
+ماب الياسمين 2 https://www.dropbox.com/scl/fi/250hizx85h9gwdh86yked/al_yasmin_3ks_3.zip?rlkey=dayj6f2p02zm4r0152vaba8av&st=f4tlxsax&dl=1
+
+
+
+
+
+ماب الغروب (1)
+
+https://www.dropbox.com/scl/fi/j9gbydv5dqy4ey95qmtgh/Abo_SrooR_Sasko.zip?rlkey=jle8oavk6es9x43y4y17unu2j&st=14334wln&dl=1
+
+
+
+
+انترا 24
+
+https://modsfire.com/ivy8p5di8HWWs8O
+
+افالون 2022-2019
+
+https://modsfire.com/PfZVKLI4gegzvpJ
 
 
 
