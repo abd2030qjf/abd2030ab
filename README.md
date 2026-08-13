@@ -676,3 +676,14 @@ https://www.dropbox.com/scl/fi/17uq73vzm0v7hlk9kefvt/5.zip?rlkey=mu9n0fru6mvxps7
 لكزس 2025
 
 https://www.dropbox.com/scl/fi/17uq73vzm0v7hlk9kefvt/5.zip?rlkey=mu9n0fru6mvxps7l5w7ph5m3l&st=xohkj7ph&dl=0
+
+
+
+لكزس 2004
+
+https://www.dropbox.com/scl/fi/2f36qln1qwqwgjm70z7cg/2004.zip?rlkey=fly8tcm3x8ey1qfazrzntjtak&st=sogauwu9&dl=0
+
+
+سوبربان 1979
+
+https://www.dropbox.com/scl/fi/ycdoc5s615q1tr9ox72np/1979.zip?rlkey=mqunlqd22unavtvqjdt36vmz9&st=6l4j9gfa&dl=0
